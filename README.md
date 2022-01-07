@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @rajan-great.
 - 👀 I’m interested in Computer desining, wed devloping and Etical hacking.
 - 🌱 I’m currently learning Coding.
-- 💞️ I’m looking to collaborate on any software companey.
+- 💞️ I’m a college boy form city Prayagraj U.P. India.
 - 📫 How to reach me ,  rraajjaann2001@gmail.com
 
 <!---
